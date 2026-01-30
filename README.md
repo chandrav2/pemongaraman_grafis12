@@ -1,0 +1,1 @@
+# pemongaraman_grafis12
